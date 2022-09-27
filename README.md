@@ -59,3 +59,8 @@
   （1）小怪被击杀有10%概率掉三种武器其中的一种
   
   
+  二、演示视频和apk
+  
+  https://share.weiyun.com/ceMgduur
+  
+  
